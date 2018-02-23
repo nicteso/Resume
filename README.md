@@ -1,5 +1,3 @@
-# Resume
-Resume
 # Nicole Tesoriero #
 ###### 19830 Bagley Drive N., #V203 *Shoreline, WA 98133*  **Phone:** 239-287-0176 **Email:** NicTeso@gmail.com ######
 
